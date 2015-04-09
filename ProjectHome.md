@@ -1,0 +1,1 @@
+The world's surface is strained by incredibly strong atmospheric pressure that can crush starships and flatten beings. Underneath the surface, though, are immense crystalline cave networks of equalized pressure, where life can exist.
